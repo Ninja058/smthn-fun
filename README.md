@@ -1,1 +1,3 @@
 # smthn-fun
+
+DEFINITLY NOT MALWARE
